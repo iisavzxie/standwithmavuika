@@ -5,6 +5,6 @@
 <p align="center">
 <a href="https://github.com/samirusuki">ʚïɞ
 <p align="center">
-<img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6620.gif">
-<p align="center">
+Why won't the imag show up ;-;
+<p>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6589.png">
