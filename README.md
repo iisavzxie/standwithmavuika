@@ -5,4 +5,6 @@
 <p align="center">
 <a href="https://github.com/samirusuki">ʚïɞ
 <p align="center">
-WIP!! COMPLETELY CHANGING MY README!! 
+<img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6618.gif">
+<p align="center">
+<img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6589.png">
