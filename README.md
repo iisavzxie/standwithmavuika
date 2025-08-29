@@ -8,5 +8,8 @@
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6635.png" width=600>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6629.gif" width=800>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6634.png" width=600>
-<p>
+<p align="center">
+‎୨ ‎ ‎ ‎ ‎ ‎rᰔntry ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ strawp☆ge ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ at✧book ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ prns p∘ge ‎ ‎ ‎ ‎ ୧
+<p align="center">
+━━━━━━
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6589.png">
